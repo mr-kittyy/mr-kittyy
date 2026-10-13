@@ -1,4 +1,4 @@
-　　　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++♡𝓞𝒔𝓬𝘢𝘳𝒔+++_&color=FF69B4)  　　　　　　　　
+　　　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++♡𝓞𝒔𝓬𝘢𝘳𝒔.+++_&color=AA336A)  　　　　　　　　
 
  　　　　　　　　　wip ♡
         
