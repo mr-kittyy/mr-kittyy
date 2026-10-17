@@ -7,4 +7,3 @@
 
 　　　　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++♡𝓞𝒔𝓬𝘢𝘳𝒔.+++_&color=ffd1dc)
 
-[![Untitled72-20261012210844.png](https://i.postimg.cc/xjMB92b0/Untitled72-20261012210844.png)](https://postimg.cc/5j9smD3G)
